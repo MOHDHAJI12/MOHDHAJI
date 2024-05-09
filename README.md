@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mohdhaji
+- 👀 I’m interested in Learning new technologies
+- 🌱 I’m currently learning Cse Btech
+- 📫 @mohdhajihatims@gmail.com
+- 😄 Pronouns: Haji
